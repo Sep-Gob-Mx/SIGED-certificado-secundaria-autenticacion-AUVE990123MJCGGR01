@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AUVE990123MJCGGR01
+AUVE990123MJCGGR01
